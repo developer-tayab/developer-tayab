@@ -43,7 +43,7 @@ Here are a few projects I have worked on or am currently working on:
 
 ## Connect With Me
 
-- **LinkedIn:** [Muhammad Tayab](https://www.linkedin.com/in/muhammad-tayab](https://www.linkedin.com/in/m-tayab/))
+- **LinkedIn:** [Muhammad Tayab]([https://www.linkedin.com/in/muhammad-tayab](https://www.linkedin.com/in/m-tayab/](https://www.linkedin.com/in/m-tayaib/)))
 
 ---
 
